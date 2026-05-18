@@ -1,2 +1,2 @@
-# https-github.com-BernardOfomafoundation-Index.html
+ https-github.com-BernardOfomafoundation-Index.html
 Bernardofomafoundation
